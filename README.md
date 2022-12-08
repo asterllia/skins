@@ -16,6 +16,9 @@ some of skins are private or edited
 # [P A T I E N C E](https://drive.google.com/file/d/1O5EyGycRHT8vo2Gdz4ezOA9hN5UHfIMZ/view?usp=sharing)
 ![](https://i.imgur.com/Jl8gn8L.jpg)
 
+# [#Patience](https://ameliayuri.s-ul.eu/lPH12xon)
+![screenshot6401](https://user-images.githubusercontent.com/120071415/206362795-ef66c429-8e45-41b6-9646-ccdf64b5fa1a.jpg)
+
 # [Luca's Sleepteiner New Default Skin (Private)]()
 ![](https://i.imgur.com/LPG4lWM.jpg)
 
