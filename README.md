@@ -14,7 +14,7 @@
 
 
 # [luca](https://waa.ai/fL9N)
-![](https://i.imgur.com/VX9OvSJ.png)(https://waa.ai/fL9N)
+[![](https://i.imgur.com/VX9OvSJ.png)](https://waa.ai/fL9N)
   
   
 # [✦ - asterllia - nijika!](https://github.com/rudj-skinhub/woal/raw/tyfh/asterllia/%E2%9C%A6%20-%20asterllia%20-%20nijika!.osk)
