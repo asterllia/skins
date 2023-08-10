@@ -4,9 +4,14 @@
   <img src="https://a.ppy.sh/9456733"  
        width="150"
        height="150"></a>
+
+# [- thinkingofu ☆ (ﾉ>_<)ﾉ](https://waa.ai/fL9N)
+![https://i.imgur.com/C3pFXHG.png](https://cdn.discordapp.com/attachments/689426989345669144/1096642761190547618/-_thinkingofu.osk)
+
+
+# [luca](https://waa.ai/fL9N)
+![screenshot6982](https://waa.ai/fL9N)
   
-# [Luca's Sleepteiner New Default Skin](https://waa.ai/fL9N)
-![](https://osu.ppy.sh/ss/18331493/677b)  
   
 # [✦ - asterllia - nijika!](https://github.com/rudj-skinhub/woal/raw/tyfh/asterllia/%E2%9C%A6%20-%20asterllia%20-%20nijika!.osk)
 [![](https://i.imgur.com/dSgmIlD.png)](https://github.com/rudj-skinhub/woal/raw/tyfh/asterllia/%E2%9C%A6%20-%20asterllia%20-%20nijika!.osk)
