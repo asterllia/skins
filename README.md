@@ -5,6 +5,18 @@
        width="150"
        height="150"></a>
   
+# [hani](https://cdn.discordapp.com/attachments/689426989345669144/1144657652958372024/hani.osk)
+  [![](https://i.imgur.com/xiirOfR.png)](https://cdn.discordapp.com/attachments/689426989345669144/1144657652958372024/hani.osk)  
+
+
+# [wanna](https://cdn.discordapp.com/attachments/689426989345669144/1144657653289713684/wanna.osk)
+  [![](https://i.imgur.com/m4cSnfe.png)](https://cdn.discordapp.com/attachments/689426989345669144/1144657653289713684/wanna.osk)
+
+
+# [yuna](https://cdn.discordapp.com/attachments/689426989345669144/1144657653801431150/yuna.osk)
+  [![](https://i.imgur.com/Mei34qa.png)](https://cdn.discordapp.com/attachments/689426989345669144/1144657653801431150/yuna.osk)
+
+
 # [chk](https://ameliayuri.s-ul.eu/GieoAgWr)
   [![](https://i.imgur.com/eg1OFsJ.png)](https://ameliayuri.s-ul.eu/GieoAgWr)
 
