@@ -5,6 +5,10 @@
        width="150"
        height="150"></a>
   
+## [me and u](https://cdn.discordapp.com/attachments/689426989345669144/1164937541682741278/me_and_u.osk)
+  [![](https://cdn.discordapp.com/attachments/689426989345669144/1164937822214553630/screenshot7114.png)](https://cdn.discordapp.com/attachments/689426989345669144/1164937541682741278/me_and_u.osk)  
+
+
 ## [hani](https://cdn.discordapp.com/attachments/689426989345669144/1144809265954029619/hani.osk)
   [![](https://i.imgur.com/yt5SIns.png)](https://cdn.discordapp.com/attachments/689426989345669144/1144809265954029619/hani.osk)  
 
