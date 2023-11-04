@@ -5,6 +5,10 @@
        width="150"
        height="150"></a>
   
+## [tekkliszchk](https://cdn.discordapp.com/attachments/689426989345669144/1170189119524196412/tekkliszchk.osk)
+  [![](https://cdn.discordapp.com/attachments/689426989345669144/1170189072908689438/screenshot7136.png)](https://cdn.discordapp.com/attachments/689426989345669144/1170189119524196412/tekkliszchk.osk)
+
+
 ## [me and u](https://cdn.discordapp.com/attachments/689426989345669144/1164937541682741278/me_and_u.osk)
   [![](https://cdn.discordapp.com/attachments/689426989345669144/1164937822214553630/screenshot7114.png)](https://cdn.discordapp.com/attachments/689426989345669144/1164937541682741278/me_and_u.osk)  
 
