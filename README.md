@@ -5,24 +5,24 @@
        width="150"
        height="150"></a>
   
-## [tekkliszchk](https://cdn.discordapp.com/attachments/689426989345669144/1170189119524196412/tekkliszchk.osk)
-  [![](https://cdn.discordapp.com/attachments/689426989345669144/1170189072908689438/screenshot7136.png)](https://cdn.discordapp.com/attachments/689426989345669144/1170189119524196412/tekkliszchk.osk)
+## [tekkliszchk](https://ameliayuri.s-ul.eu/BF4dS8ql)
+  [![](https://cdn.discordapp.com/attachments/689426989345669144/1210602001893957712/screenshot7136.png?ex=65eb27f9&is=65d8b2f9&hm=e642f5e0dc4a9d1e46a3f9d041ef6af3c98e8a4744641fa122b5499a133dc1e4&)](https://ameliayuri.s-ul.eu/NH4MoJvZ)
 
 
-## [me and u](https://cdn.discordapp.com/attachments/689426989345669144/1164937541682741278/me_and_u.osk)
-  [![](https://cdn.discordapp.com/attachments/689426989345669144/1164937822214553630/screenshot7114.png)](https://cdn.discordapp.com/attachments/689426989345669144/1164937541682741278/me_and_u.osk)  
+## [me and u](https://ameliayuri.s-ul.eu/NH4MoJvZ)
+  [![](https://cdn.discordapp.com/attachments/689426989345669144/1210601915587493909/screenshot7114.png?ex=65eb27e4&is=65d8b2e4&hm=839b222ae6e293d55195007ab50a549dfea17d4f8897c0d8f9ccb4b829ba67f7&)](https://ameliayuri.s-ul.eu/NH4MoJvZ)  
 
 
-## [hani](https://cdn.discordapp.com/attachments/689426989345669144/1144809265954029619/hani.osk)
-  [![](https://i.imgur.com/yt5SIns.png)](https://cdn.discordapp.com/attachments/689426989345669144/1144809265954029619/hani.osk)  
+## [hani](https://ameliayuri.s-ul.eu/y3Xx5bhB)
+  [![](https://i.imgur.com/yt5SIns.png)](https://ameliayuri.s-ul.eu/y3Xx5bhB)  
 
 
-## [wanna](https://cdn.discordapp.com/attachments/689426989345669144/1144657653289713684/wanna.osk)
-  [![](https://i.imgur.com/m4cSnfe.png)](https://cdn.discordapp.com/attachments/689426989345669144/1144657653289713684/wanna.osk)
+## [wanna](https://ameliayuri.s-ul.eu/I8QkafGQ)
+  [![](https://i.imgur.com/m4cSnfe.png)](https://ameliayuri.s-ul.eu/I8QkafGQ)
 
 
-## [yuna](https://cdn.discordapp.com/attachments/689426989345669144/1144657653801431150/yuna.osk)
-  [![](https://i.imgur.com/Mei34qa.png)](https://cdn.discordapp.com/attachments/689426989345669144/1144657653801431150/yuna.osk)
+## [yuna](https://ameliayuri.s-ul.eu/7oXetAGc)
+  [![](https://i.imgur.com/Mei34qa.png)](https://ameliayuri.s-ul.eu/7oXetAGc)
 
 
 ## [chk](https://ameliayuri.s-ul.eu/GieoAgWr)
@@ -45,8 +45,8 @@
   [![](https://i.imgur.com/sGEE4p6.png)](https://ameliayuri.s-ul.eu/FIAx5zoQ)
 
 
-## [thinkingofu☆](https://cdn.discordapp.com/attachments/689426989345669144/1096642761190547618/-_thinkingofu.osk)
-  [![](https://i.imgur.com/C3pFXHG.png)](https://cdn.discordapp.com/attachments/689426989345669144/1096642761190547618/-_thinkingofu.osk)
+## [thinkingofu☆](https://ameliayuri.s-ul.eu/L1wvKonz)
+  [![](https://i.imgur.com/C3pFXHG.png)](https://ameliayuri.s-ul.eu/L1wvKonz)
 
 
 ## [luca](https://waa.ai/fL9N)
