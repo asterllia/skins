@@ -10,11 +10,11 @@
 
 
 ## [tekkliszchk](https://ameliayuri.s-ul.eu/BF4dS8ql)
-  [![](https://cdn.discordapp.com/attachments/689426989345669144/1210602001893957712/screenshot7136.png?ex=65eb27f9&is=65d8b2f9&hm=e642f5e0dc4a9d1e46a3f9d041ef6af3c98e8a4744641fa122b5499a133dc1e4&)](https://ameliayuri.s-ul.eu/NH4MoJvZ)
+  [![](https://i.imgur.com/vV9BJv7.png)](https://ameliayuri.s-ul.eu/NH4MoJvZ)
 
 
 ## [me and u](https://ameliayuri.s-ul.eu/NH4MoJvZ)
-  [![](https://cdn.discordapp.com/attachments/689426989345669144/1210601915587493909/screenshot7114.png?ex=65eb27e4&is=65d8b2e4&hm=839b222ae6e293d55195007ab50a549dfea17d4f8897c0d8f9ccb4b829ba67f7&)](https://ameliayuri.s-ul.eu/NH4MoJvZ)  
+  [![](https://i.imgur.com/wLHoBx7.png)](https://ameliayuri.s-ul.eu/NH4MoJvZ)  
 
 
 ## [hani](https://ameliayuri.s-ul.eu/y3Xx5bhB)
