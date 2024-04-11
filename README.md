@@ -5,6 +5,10 @@
        width="150"
        height="150"></a>
   
+## [thank yourself](https://ameliayuri.s-ul.eu/wC7VjQZD)
+  [![](https://i.imgur.com/n04i9J6.png)](https://ameliayuri.s-ul.eu/wC7VjQZD)
+
+
 ## [tekkliszchk](https://ameliayuri.s-ul.eu/BF4dS8ql)
   [![](https://cdn.discordapp.com/attachments/689426989345669144/1210602001893957712/screenshot7136.png?ex=65eb27f9&is=65d8b2f9&hm=e642f5e0dc4a9d1e46a3f9d041ef6af3c98e8a4744641fa122b5499a133dc1e4&)](https://ameliayuri.s-ul.eu/NH4MoJvZ)
 
