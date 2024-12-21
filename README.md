@@ -5,6 +5,9 @@
        width="150"
        height="150"></a>
   
+## [jeong jin-sol](https://ameliayuri.s-ul.eu/Mz9gWHT6)
+  [![](https://i.imgur.com/n5EF7ev.png)](https://ameliayuri.s-ul.eu/Mz9gWHT6)
+
 ## [nayeon](https://ameliayuri.s-ul.eu/a8iMy1j0)
   [![](https://i.imgur.com/MZZXnbK.png)](https://ameliayuri.s-ul.eu/a8iMy1j0)
 
