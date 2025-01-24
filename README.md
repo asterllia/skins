@@ -5,7 +5,7 @@
        width="150"
        height="150"></a>
   
-## [Yoon Se-Eun](https://ameliayuri.s-ul.eu/fI094wXC)
+## [yoon se-eun](https://ameliayuri.s-ul.eu/fI094wXC)
   [![](https://i.imgur.com/80vXv4G.png)](https://ameliayuri.s-ul.eu/fI094wXC)
 
 ## [jeong jin-sol](https://ameliayuri.s-ul.eu/Mz9gWHT6)
