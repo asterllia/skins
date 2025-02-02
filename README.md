@@ -36,20 +36,12 @@
   [![](https://i.imgur.com/yt5SIns.png)](https://ameliayuri.s-ul.eu/y3Xx5bhB)  
 
 
-## [wanna](https://ameliayuri.s-ul.eu/I8QkafGQ)
-  [![](https://i.imgur.com/m4cSnfe.png)](https://ameliayuri.s-ul.eu/I8QkafGQ)
-
-
 ## [yuna](https://ameliayuri.s-ul.eu/7oXetAGc)
   [![](https://i.imgur.com/Mei34qa.png)](https://ameliayuri.s-ul.eu/7oXetAGc)
 
 
 ## [chk](https://ameliayuri.s-ul.eu/GieoAgWr)
   [![](https://i.imgur.com/eg1OFsJ.png)](https://ameliayuri.s-ul.eu/GieoAgWr)
-
-
-## [ann](https://ameliayuri.s-ul.eu/KrKDzyBT)
-  [![](https://i.imgur.com/YnMJlis.png)](https://ameliayuri.s-ul.eu/KrKDzyBT)
 
 
 ## [ft_aster](https://ameliayuri.s-ul.eu/uPybnMNo)
