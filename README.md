@@ -5,6 +5,9 @@
        width="150"
        height="150"></a>
   
+## [jo haseul](https://ameliayuri.s-ul.eu/TU3wzoii)
+  [![](https://i.imgur.com/TyBmedN.png)](https://ameliayuri.s-ul.eu/TU3wzoii)
+
 ## [yoon se-eun](https://ameliayuri.s-ul.eu/fI094wXC)
   [![](https://i.imgur.com/80vXv4G.png)](https://ameliayuri.s-ul.eu/fI094wXC)
 
