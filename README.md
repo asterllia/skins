@@ -29,59 +29,47 @@
 ## [thank yourself](https://ameliayuri.s-ul.eu/wC7VjQZD)
   [![](https://i.imgur.com/n04i9J6.png)](https://ameliayuri.s-ul.eu/wC7VjQZD)
 
-
 ## [tekkliszchk](https://ameliayuri.s-ul.eu/BF4dS8ql)
   [![](https://i.imgur.com/vV9BJv7.png)](https://ameliayuri.s-ul.eu/NH4MoJvZ)
-
 
 ## [me and u](https://ameliayuri.s-ul.eu/NH4MoJvZ)
   [![](https://i.imgur.com/wLHoBx7.png)](https://ameliayuri.s-ul.eu/NH4MoJvZ)  
 
-
 ## [hani](https://ameliayuri.s-ul.eu/y3Xx5bhB)
   [![](https://i.imgur.com/yt5SIns.png)](https://ameliayuri.s-ul.eu/y3Xx5bhB)  
-
 
 ## [yuna](https://ameliayuri.s-ul.eu/7oXetAGc)
   [![](https://i.imgur.com/Mei34qa.png)](https://ameliayuri.s-ul.eu/7oXetAGc)
 
-
 ## [chk](https://ameliayuri.s-ul.eu/GieoAgWr)
   [![](https://i.imgur.com/eg1OFsJ.png)](https://ameliayuri.s-ul.eu/GieoAgWr)
-
 
 ## [ft_aster](https://ameliayuri.s-ul.eu/uPybnMNo)
   [![](https://i.imgur.com/5wkt1yW.png)](https://ameliayuri.s-ul.eu/uPybnMNo)
   
-
 ## [ditto](https://ameliayuri.s-ul.eu/yn2X8u7i)
   [![](https://i.imgur.com/AcyTkzy.png)](https://ameliayuri.s-ul.eu/yn2X8u7i)
-
 
 ## [eunbi](https://ameliayuri.s-ul.eu/FIAx5zoQ)
   [![](https://i.imgur.com/sGEE4p6.png)](https://ameliayuri.s-ul.eu/FIAx5zoQ)
 
-
 ## [thinkingofu☆](https://ameliayuri.s-ul.eu/L1wvKonz)
   [![](https://i.imgur.com/C3pFXHG.png)](https://ameliayuri.s-ul.eu/L1wvKonz)
 
-
 ## [luca](https://waa.ai/fL9N)
 [![](https://i.imgur.com/VX9OvSJ.png)](https://waa.ai/fL9N)
-  
-  
-## [nijika_aster!](https://github.com/rudj-skinhub/woal/raw/tyfh/asterllia/%E2%9C%A6%20-%20asterllia%20-%20nijika!.osk)
-[![](https://i.imgur.com/dSgmIlD.png)](https://github.com/rudj-skinhub/woal/raw/tyfh/asterllia/%E2%9C%A6%20-%20asterllia%20-%20nijika!.osk)
+   
+## [nijika_aster!](https://ameliayuri.s-ul.eu/UKj64IhK)
+[![](https://i.imgur.com/dSgmIlD.png)](https://ameliayuri.s-ul.eu/UKj64IhK)
 
-## [ikuyo_aster!](https://github.com/rudj-skinhub/woal/raw/tyfh/asterllia/%E2%9C%A6%20-%20asterllia%20-%20ikuyo!.osk)
-[![](https://i.imgur.com/eYquBk6.png)](https://github.com/rudj-skinhub/woal/raw/tyfh/asterllia/%E2%9C%A6%20-%20asterllia%20-%20ikuyo!.osk)
+## [ikuyo_aster!](https://ameliayuri.s-ul.eu/pd7KUXu2)
+[![](https://i.imgur.com/eYquBk6.png)](https://ameliayuri.s-ul.eu/pd7KUXu2)
 
-## [ryou_aster!](https://github.com/rudj-skinhub/woal/raw/tyfh/asterllia/%E2%9C%A6%20-%20asterllia%20-%20ryou!.osk)
-[![](https://i.imgur.com/Gl6wQch.png)](https://github.com/rudj-skinhub/woal/raw/tyfh/asterllia/%E2%9C%A6%20-%20asterllia%20-%20ryou!.osk)
+## [ryou_aster!](https://ameliayuri.s-ul.eu/XjEndjL7)
+[![](https://i.imgur.com/Gl6wQch.png)](https://ameliayuri.s-ul.eu/XjEndjL7)
 
-## [ryouazr8_aster!](https://github.com/rudj-skinhub/woal/raw/tyfh/asterllia/%E2%9C%A6%20-%20asterllia%20-%20ryou!%20-%20azr8.osk)
-[![](https://i.imgur.com/0xIpuK8.png)](https://github.com/rudj-skinhub/woal/raw/tyfh/asterllia/%E2%9C%A6%20-%20asterllia%20-%20ryou!%20-%20azr8.osk)
+## [ryouazr8_aster!](https://ameliayuri.s-ul.eu/B1cDEe2a)
+[![](https://i.imgur.com/0xIpuK8.png)](https://ameliayuri.s-ul.eu/B1cDEe2a)
 
-
-## [bocchi_aster!](https://github.com/rudj-skinhub/woal/raw/tyfh/asterllia/bocchi_aster!.osk)
-[![](https://i.imgur.com/RrmJyOr.jpg)](https://github.com/rudj-skinhub/woal/raw/tyfh/asterllia/bocchi_aster!.osk)
+## [bocchi_aster!](https://drive.google.com/file/d/1hSdEb12TQCGwdcB1KWjmJchXk-yMdQVk/view?usp=sharing)
+[![](https://i.imgur.com/RrmJyOr.jpg)](https://drive.google.com/file/d/1hSdEb12TQCGwdcB1KWjmJchXk-yMdQVk/view?usp=sharing)
