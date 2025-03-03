@@ -1,10 +1,13 @@
-# asterllia- skins
+# asterllia- / kim hyun-jin skins
 <p align="center">
 <a href="https://osu.ppy.sh/users/9456733">
   <img src="https://a.ppy.sh/9456733"  
        width="150"
        height="150"></a>
   
+## [chuu](https://ameliayuri.s-ul.eu/DxZDXpe3)
+  [![](https://i.imgur.com/R6pEmPF.png)](https://ameliayuri.s-ul.eu/DxZDXpe3)  
+
 ## [son hyeju](https://ameliayuri.s-ul.eu/uktMuC5f)
   [![](https://i.imgur.com/a9TT9Py.png)](https://ameliayuri.s-ul.eu/uktMuC5f)
 
