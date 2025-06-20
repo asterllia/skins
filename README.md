@@ -1,4 +1,4 @@
-# asterllia- / kim hyun-jin skins
+# asterllia- / kim hyunjin skins
 <p align="center">
 <a href="https://osu.ppy.sh/users/9456733">
   <img src="https://a.ppy.sh/9456733"  
